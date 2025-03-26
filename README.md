@@ -1,4 +1,4 @@
-Laws of Physics.
+New Laws of Physics.
 
 Build your own Universally Complete System.
 
